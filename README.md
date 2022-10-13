@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @queen-ahonye
+- 👀 I’m interested in learning more about technological advancement...
+- 🌱 I’m currently learning software development with ALX
+- 💞️ I’m looking forward to contribute greatly bringing the best of technological services to my world.
+- 📫 reach me @queenzee387@gmail.com 
